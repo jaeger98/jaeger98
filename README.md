@@ -1,7 +1,7 @@
 - 👋 Hi, I’m JongHo
-- 👀 I’m interested in teaching something for beginers.
+- 👀 I’m interested in teaching something for beginners.
 - 🌱 I’m currently learning on AI
-- 📫 How to reach me ... jaeger98@nate.com
+- 📫 How to reach me ... leave comments here
 
 
 
